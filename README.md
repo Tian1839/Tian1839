@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tian1839
+- 👋 Hi, I’m Tian
 - 👀 I’m interested in computer
 - 🌱 I’m currently learning it
 - 
